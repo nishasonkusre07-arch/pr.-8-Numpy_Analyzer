@@ -585,6 +585,7 @@ By completing this project, the following skills are demonstrated:
 
 ## Explanation video:
 
+https://drive.google.com/file/d/1ghd0NCzDo0BTVz40nAGMa3nd1vD-bNqb/view?usp=sharing
 
 ## connect with me:
 
